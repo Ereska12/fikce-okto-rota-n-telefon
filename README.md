@@ -1,0 +1,1 @@
+# fikce-okto-rota-n-telefon
